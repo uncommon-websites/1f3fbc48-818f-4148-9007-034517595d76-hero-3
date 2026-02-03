@@ -1,0 +1,2 @@
+# 1f3fbc48-818f-4148-9007-034517595d76-hero-3
+Hero section variant 3 for 1f3fbc48-818f-4148-9007-034517595d76
